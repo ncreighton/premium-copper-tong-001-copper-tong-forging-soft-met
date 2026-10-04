@@ -1,0 +1,2 @@
+# premium-copper-tong-001-copper-tong-forging-soft-met
+Tired of losing track of your copper tong forging specs and soft metal grip measurements across scattered notebooks and sticky notes? Your craft deserves a dedicated command center.  The Copper Tong Forging &amp; Soft Metal Grip Craft Hub is the only Notion template built specifically for the unique workflow of forging copper tongs and crafting precise
